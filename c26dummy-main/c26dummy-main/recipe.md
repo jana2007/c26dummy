@@ -1,0 +1,1 @@
+take some watermelon and blend it. keep it in freezer for some time and it is ready
